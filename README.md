@@ -1,4 +1,4 @@
-#**Best Blox Fruits Script No Key | Auto Farm, Fruit Notifier, Mobile & PC Support 2025**
+# **Best Blox Fruits Script No Key | Auto Farm, Fruit Notifier, Mobile & PC Support 2025**
 
 # 🚀 Best Blox Fruits Script 2025 - Mobile, PC, No Key, Fruit Notifier & More
 
